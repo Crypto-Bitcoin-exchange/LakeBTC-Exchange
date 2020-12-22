@@ -1,1 +1,16 @@
 # LakeBTC-Exchange
+
+About LakeBTC : 
+<a href="https://coinpedia.org/exchange/lakebtc/">LakeBTC</A> is renowned to be Lake BankingTechnology Company started out withinside the 365 days 2013 as virtual BitcoinExchange. The commercial enterprise agency has started out for those inquisitive about cryptocurrencies and blockchain technology. The goal of LakeBTC isto come to be the fantastic Bitcoin platform over the arena with keen experience ininner control and danger manipulate. 
+High liquidity and fast trade in form are the two key attributes that purpose them to grow to be impartial from exclusive exchanges. 
+Key elements of LakeBTC: 
+Bitcoin wallet service:
+With Bitcoin Wallet service, clients can each withdraw bitcoin to their very very own wallets or they may go away it on the LakeBTC wallet itself. To certify the individual fund’s security, the net webweb page has taken steps as cold storage, 2-step verification, SMS withdrawal confirmation, and trade notifications. 
+Merchant tools: However,this allows corporations to actually take delivery of payments in fact for free. This technique is straightforward and informal to mix than traditional rate techniques like credit score rating cards. 
+Exceptional individual experience: The commercial enterprise agency is proud to have an top notch help team to assist its clients in solving problems concerning shopping for and promoting, withdrawals, password recovery, registration, login, etc. 
+The commercial enterprise agency specializes in 4 key aspects:
+Security: In order to constant the charge variety and privacy of clients, the protection manipulate is subsidized with the useful resource of the use of an professional team. The team moreover comes with device like SSL encryption, cold storage, SMS withdrawal confirmation, trade notification, and so on. Along with these, the commercial enterprise agency is available with pretty constant market facts and shopping for and promoting API’s for advanced clients. 
+Liquidity: Though, LakeBTC exchange offers immoderate liquidity to its individual investors, merchants, exchanges, miners, charge variety, arbitrageurs and professional shopping for and promoting firms. This feature allows its clients listing price in severa indexes. 
+Fairness: In order to protect the investor’s interest, the commercial enterprise agency gives an inexperienced market. It is blanketed with whole danger manipulate, strict internal controls and market manipulations. 
+Service: Furthermore, the LakeBTC exchange is supported with the useful resource of the use of top notch individual experience to provide its client excellent experience. They treatment your questions concerning password recovery, shopping for and promoting, APIs and withdrawals. 
+LakeBTC Fees: When a provider reads this <a href="https://coinpedia.org/exchange/lakebtc/">LakeBTC exchange</A> review, one question arises is regarding exchange charges. The exchange platform does now now no longer have any deposit charges, on the equal time as withdrawal has a flat network fee of 0.001 BTC. Trading Fees depend on whether or not or now no longer you are a Taker or Maker.Taker has a tough and speedy 0.2es, on the equal time as maker charges depend on the past calendar month. It tiers from 0% to 0.15%.
